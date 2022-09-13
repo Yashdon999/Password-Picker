@@ -16,4 +16,4 @@ Kuch bhi instrall karne na ke jarurat nahi ha . random module already exists on 
 
 slkjsdllsjlfjs
 lsjdflksjflkjsadkla
-fuck you boy fuck y9ou
+fuck you boy omaya
