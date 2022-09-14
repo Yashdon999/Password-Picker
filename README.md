@@ -20,3 +20,4 @@ s;lkckc;sdc;lsd;lc;ls;l
 smclsmcls;lfflsflkasjjfuck you
 Fuck you omaya Fuck you omaya omaya fuck you
 Mc Omaya Fuck you omaya
+Omaya chutiya
